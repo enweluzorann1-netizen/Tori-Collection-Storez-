@@ -1,2 +1,2 @@
 # Tori-Collection-Storez-
-Your Favorites, All in One Store. Style for every you 
+Your Favorites,All in One Store and Style for Every You. le
